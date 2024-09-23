@@ -1,2 +1,21 @@
-# luoxinran-414join
-This is a repository about my 414
+This is a repository about my 414 join
+# 昵称
+LLL521594
+# Real name
+Luo Xinran
+# Introduction
+学长学姐好，我是LLL521594，真实姓名骆欣然，诚挚地希望加入414社团
+
+兴趣爱好
+- 二次元
+- 羽毛球
+- 音乐
+- 绘画
+- 撸猫
+
+> ###  加入414后希望学习*美工方面*的知识
+> - 提升 ***PS*** 方面的能力
+> - 学习*UI设计*
+>同时也希望得到 ***建模*** 方面的能力
+>>当然也希望能够增进各方面的能力，获得更多的技能
+
