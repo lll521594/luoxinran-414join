@@ -1,4 +1,4 @@
-This is a repository about my 414 join
+This is a repository about my 414 join😊
 # 昵称
 LLL521594
 # Real name
