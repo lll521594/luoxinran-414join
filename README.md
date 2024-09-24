@@ -5,8 +5,6 @@ LLL521594
 Luo Xinran
 # Introduction
 学长学姐好，我是LLL521594，真实姓名骆欣然，诚挚地希望加入414社团💖
-![Suggestion](https://github.com/user-attachments/assets/481dc390-cf7f-4886-a745-d282eea7f92f)
-
 
 兴趣爱好(❁´◡`❁)
 - 二次元🥳
@@ -20,7 +18,7 @@ Luo Xinran
 > - 学习*UI设计*
 >同时也希望得到 ***建模*** 方面的能力
 >>当然也希望能够增进各方面的能力，获得更多的技能
->>![yeah](https://github.com/user-attachments/assets/1b01e6c5-0656-4d41-9c73-1d15456f4465)
+![yeah](https://github.com/user-attachments/assets/1b01e6c5-0656-4d41-9c73-1d15456f4465)
 
 
 ![米山舞大大万岁](http://m.qpic.cn/psc?/V13NpnuN2DGOCv/TmEUgtj9EK6.7V8ajmQrEJxV64tsCKxb9BMQ4BiC8sq1L1LSXbyeyg.P9weh75i*65ZgS8TCinBsD8bKKucgJy.qZlagd0AklZCiavZ5Qjs!/mnull&bo=OASgBTgEoAUBByA!&rf=photolist&t=5)
