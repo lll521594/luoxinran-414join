@@ -29,3 +29,7 @@ Luo Xinran
 ---
 
 ![yeah](https://github.com/user-attachments/assets/1b01e6c5-0656-4d41-9c73-1d15456f4465)
+
+
+# 附加题
+这是我的儿童插画
