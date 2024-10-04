@@ -61,6 +61,10 @@ Luo Xinran
    - 绘画思路 类型定向为*儿童插画*，画风偏厚涂，主体是一个可爱的小女孩(๑•.•๑)，穿着雨靴在雨后踩水。雨后草地的石板路由于下雨积水产生了清澈透亮的小水坑。画面整体凸显了小女孩的童稚天真。 
 ![雨后](http://m.qpic.cn/psc?/V13NpnuN3s28Uc/TmEUgtj9EK6.7V8ajmQrEPWUVZO2mUMDhgxmDsQr6kJD0z58gbUJ1IcCI5cgM8uK7uTI7KFvlbtpNGqCjylQesDDZSEWSdWxmdIcHzTSTw4!/mnull&bo=QAZABkAGQAYBByA!&rf=photolist&t=5)
    
-   
+---
+
+3. # 我的视频剪辑
+   - 你的名字动漫电影剪辑
+
 
 
